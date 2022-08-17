@@ -1,5 +1,5 @@
 ## Hi! Call me "GOLD11DRAGON"!
 
-## Contact me!
-- [**Discord Server**](https://discord.gg/MPkmBtnA3S)
-- [**Telegram channel**](https://t.me/YourFavoriteCafe)
+ク Link
+笑 [**Waylt**](https://discord.gg/MPkmBtnA3S)
+私 [**GOLD11DRAGON Cafe**](https://t.me/YourFavoriteCafe)
